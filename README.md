@@ -1,0 +1,1 @@
+# yap-lacaklar-listesi
